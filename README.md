@@ -1,0 +1,1 @@
+# Syntecx_Internship_projects
